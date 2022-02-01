@@ -1,6 +1,7 @@
-- 👋 Hi, I’m @alvyn-vengeance
+- 👋 Hi, I’m Alvyn Vengeance
 - 👀 I’m interested in Vengeance University
-- 🌱 I’m currently learning Drum
+- 🌱 I’m currently learning in Devil
+- 🔢 My favourite naumber is 6661
 - 💞️ My Waifu is Eula 🥰
 - I'm fans Avenged Sevenfold 😎🤘
 - See my Profile : https://linktr.ee/vynutzxx22
